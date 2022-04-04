@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xikunguny
+-  tenho interesse em aprender a desenvolver 
+- quero aprender algo novo para mudar de profissão
+- nao sei mais oque escrever.
